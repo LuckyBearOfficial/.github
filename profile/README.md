@@ -6,6 +6,34 @@
   </a>
 </p>
 
+Lucky Bear Casino — это удобная страница для игроков, которые хотят быстро найти Лаки Бир Казино, перейти на Lucky Bear Casino официальный сайт или открыть Lucky Bear Casino зеркало, если основной домен временно недоступен. Здесь собрана практичная информация про регистрацию, Lucky Bear Casino бонус, использование Lucky Bear Casino промокод и быстрый вход без лишних шагов.
+
+<p align="center">
+  <a href="https://gamewin777.xyz/8HDhQp">
+    <img src="https://img.shields.io/static/v1?style=for-the-badge&label=%F0%9F%8E%81&message=%D0%9F%D0%BE%D0%BB%D1%83%D1%87%D0%B8%D1%82%D1%8C%20%D0%B1%D0%BE%D0%BD%D1%83%D1%81%20360%25&color=2f8cff" alt="Получить бонус 360%">
+  </a>
+</p>
+
+<p align="center">
+  <a href="https://gamewin777.xyz/8HDhQp">
+    <img src="https://img.shields.io/static/v1?style=for-the-badge&label=%F0%9F%AA%9E&message=%D0%A0%D0%B0%D0%B1%D0%BE%D1%87%D0%B5%D0%B5%20%D0%B7%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE&color=1f6feb" alt="Рабочее зеркало">
+  </a>
+</p>
+
+<p align="center">
+  <a href="https://gamewin777.xyz/8HDhQp">
+    <img src="https://img.shields.io/static/v1?style=for-the-badge&label=%F0%9F%8E%AE&message=%D0%98%D0%B3%D1%80%D0%B0%D1%82%D1%8C%20%D1%81%D0%B5%D0%B9%D1%87%D0%B0%D1%81&color=2ea043" alt="Играть сейчас">
+  </a>
+</p>
+
+<p align="center">
+  <a href="https://gamewin777.xyz/8HDhQp">
+    <img src="https://img.shields.io/static/v1?style=for-the-badge&label=%F0%9F%93%8B&message=%D0%90%D0%BA%D1%82%D0%B8%D0%B2%D0%B8%D1%80%D0%BE%D0%B2%D0%B0%D1%82%D1%8C%20%D0%BF%D1%80%D0%BE%D0%BC%D0%BE%D0%BA%D0%BE%D0%B4&color=f97316" alt="Активировать промокод">
+  </a>
+</p>
+
+Официальное зеркало Lucky Bear Casino доступно по кнопкам выше.
+
 > 🎁 **Бонус новым игрокам**
 >
 > ✅ До 50 000 ₽
@@ -20,11 +48,6 @@
 >
 > ✅ Рабочее зеркало
 
-| [![Получить бонус 360%](https://img.shields.io/static/v1?style=for-the-badge&label=%F0%9F%8E%81&message=%D0%9F%D0%BE%D0%BB%D1%83%D1%87%D0%B8%D1%82%D1%8C%20%D0%B1%D0%BE%D0%BD%D1%83%D1%81%20360%25&color=2f8cff)](https://gamewin777.xyz/8HDhQp) | [![Рабочее зеркало](https://img.shields.io/static/v1?style=for-the-badge&label=%F0%9F%AA%9E&message=%D0%A0%D0%B0%D0%B1%D0%BE%D1%87%D0%B5%D0%B5%20%D0%B7%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE&color=1f6feb)](https://gamewin777.xyz/8HDhQp) | [![Играть сейчас](https://img.shields.io/static/v1?style=for-the-badge&label=%F0%9F%8E%AE&message=%D0%98%D0%B3%D1%80%D0%B0%D1%82%D1%8C%20%D1%81%D0%B5%D0%B9%D1%87%D0%B0%D1%81&color=2ea043)](https://gamewin777.xyz/8HDhQp) |
-|:---:|:---:|:---:|
-
-Официальное зеркало Lucky Bear Casino доступно по кнопкам выше.
-
 ## Содержание
 
 - [Почему выбирают Lucky Bear Casino](#почему-выбирают-lucky-bear-casino)
@@ -36,8 +59,6 @@
 - [Вход и зеркало](#вход-и-зеркало)
 - [FAQ](#faq)
 - [Теги](#теги)
-
-Lucky Bear Casino — это удобная страница для игроков, которые хотят быстро найти Лаки Бир Казино, перейти на Lucky Bear Casino официальный сайт или открыть Lucky Bear Casino зеркало, если основной домен временно недоступен. Здесь собрана практичная информация про регистрацию, Lucky Bear Casino бонус, использование Lucky Bear Casino промокод и быстрый вход без лишних шагов.
 
 ## Почему выбирают Lucky Bear Casino
 
